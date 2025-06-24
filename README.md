@@ -1,0 +1,1 @@
+# TyraStudioColaboradores
